@@ -1,2 +1,2 @@
-# turkishskid-fabric
-astera client made by some turks and uh
+# turkish skid poop ware aka Astera
+leaked by tinkoprof [the guy who tried to use ChatGPT to make a velocity mod]
